@@ -44,7 +44,7 @@ This theory in leadership discusses the idea that there are two ways to look at 
 
 ## Herzbergs Moticational Factors
 
-![herzle]()
+![herzle](sherberg.png)
 
 
 ## links
