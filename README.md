@@ -19,7 +19,7 @@ Detail.
 - passionate
 - Honest
 - intellegent
-- very self assure and confident
+- very self assured and confident
 
 ---
 
