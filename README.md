@@ -46,7 +46,6 @@ This theory in leadership discusses the idea that there are two ways to look at 
 
 ![herzle](sherberg.png)
 
-
 ## links
 
 [Leadership Skills](https://www.thebalancecareers.com/top-leadership-skills-2063782)
